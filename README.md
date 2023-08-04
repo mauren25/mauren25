@@ -9,6 +9,6 @@ Meu nome é Mauren Alessio
   ### Você entrar em contato comigo
 
 mauren.alessio@escola.pr.gov.br  
-@maurenalessio
+@ maurenbet
 
 ![](https://media.tenor.com/4eEEX5QVpeAAAAAM/barbie-movie-2023-ken.gif)
